@@ -6,9 +6,7 @@ Ich beantrage hiermit, im Melderegister über meine persönlichen Daten folgende
 
 + Übermittlungssperre für die Veröffentlichung meiner Daten anlässlich Alters- oder Ehejubiläums (§ 34 Abs. 2 MG)
 
-+ Übermittlungssperre für die Veröffentlichung meiner Daten in Adressbüchern, gedruckten Einwohnerverzeichnissen (§ 34 Abs. 3 MG)
-
-+ Übermittlungssperre für die Veröffentlichung meiner Daten auf elektronischen Verzeichnissen, z.B. CD-ROM (§ 34 Abs. 3 MG)
++ Übermittlungssperre für die Veröffentlichung meiner Daten in Adressbüchern, gedruckten Einwohnerverzeichnissen und auf elektronischen Verzeichnissen, z.B. CD-ROM (§ 34 Abs. 3 MG)
 
 + Auskunftssperre für die Weitergabe meiner Daten zum Zwecke der Direktwerbung (§ 9 MG)
 
