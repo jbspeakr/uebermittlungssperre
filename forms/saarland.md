@@ -1,12 +1,12 @@
 ### Antrag auf Übermittlungssperre
 
-Ich beantrage eine Sperre für Auskünfte über/an:
+Hiermit widerspreche ich
 
-+ Internet,
-+ Religionsgesellschaften,
-+ Wehrverwaltung,
-+ Parteien und Wählergruppen,
-+ Alters- und Ehejubiläen.
++ Der Weitergabe meiner Daten über das Internet,
++ Der Weitergabe meiner Daten an Religionsgesellschafte,
++ Der Weitergabe meiner Daten an die Wehrverwaltung,
++ Der Weitergabe meiner Daten an Parteien und Wählergruppen,
++ Der Weitergabe meiner Daten über Alters- und Ehejubiläen.
 
 Ich bitte um Bestätigung, dass der Widerspruch im Melderegister gespeichert worden ist.
 
