@@ -6,9 +6,7 @@ Hiermit widerspreche ich,
 
 + Der Erteilung einer Auskunft über die zu meiner Person nach § 32 Abs. 1 Satz 1 SächsMG gespeicherten Daten an Parteien, Wählergruppen und andere Träger von Wahlvorschlägen im Zusammenhang mit Wahlen zu parlamentarischen und kommunalen Vertretungskörperschaften (z. B. bei Landtagswahlen) bzw. der Nutzung der Daten für die Versendung von Wahlwerbung (§ 33 Abs. 1 i.V.m. § 33 Abs. 4 SächsMG).
 
-+ Der Weitergabe meiner Daten an Presse, Rundfunk und andere Medien zum Zwecke der Veröffentlichung von Altersjubilaren (§ 33 Abs. 2 i.V.m. § 33 Abs. 4 SächsMG).
-
-+ Der Weitergabe meiner Daten an Presse, Rundfunk und andere Medien zum Zwecke der Veröffentlichung von Ehejubilaren (§ 33 Abs. 2 i.V.m. § 33 Abs. 4 SächsMG).
++ Der Weitergabe meiner Daten an Presse, Rundfunk und andere Medien zum Zwecke der Veröffentlichung von Altersjubilaren und Ehejubilaren (§ 33 Abs. 2 i.V.m. § 33 Abs. 4 SächsMG).
 
 + Der Veröffentlichung meiner Daten in Adressbüchern und ähnlichen Nachschlagewerken oder der Übermittlung meiner Daten an Andere zum Zwecke der Herausgabe solcher Werke (§ 33 Abs. 3 i.V.m. § 33 Abs. 4 SächsMG).
 
