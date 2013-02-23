@@ -10,7 +10,7 @@ Nach Maßgabe des Meldegesetzes beantrage ich die Einrichtung folgender Übermit
 
 + Der Weitergabe meiner Daten an Adressbuchverlage wird widersprochen (§ 33 Abs. 3 Meldegesetz)
 
-+ Hiermit widerspreche ich der Weitergabe meiner Daten an Private (einfache Melderegisterauskunft) im Falle des automatisierten Abrufs über das Internet (§ 32 Abs. 1 b Meldegesetz).
++ Der Weitergabe meiner Daten an Private (einfache Melderegisterauskunft) im Falle des automatisierten Abrufs über das Internet (§ 32 Abs. 1 b Meldegesetz).
 
 Ich bitte um Bestätigung, dass der Widerspruch im Melderegister gespeichert worden ist.
 
