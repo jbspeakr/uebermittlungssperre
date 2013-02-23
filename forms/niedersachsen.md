@@ -10,7 +10,7 @@ Hiermit widerspreche ich
 
 + Der Weitergabe meiner Daten über einfache Melderegisterauskunft mittels automatisierten Abrufs über das Internet (§33 Abs. 1 NMG),
 
-+ Der Weitergabe meiner Daten an das Bundesamt für Wehrverwaltung gemäß § 18 Absatz 7 Melderechtsrahmengesetz. Diese Datenübermittlung erfolgt zum Zwecke der Übersendung von Informationsmaterial über die Streitkräfte an eventuell zukünftige Freiwillige.
++ Der Weitergabe meiner Daten an das Bundesamt für Wehrverwaltung gemäß § 18 Absatz 7 Melderechtsrahmengesetz.
 
 + Der Weitergabe meiner Daten an öffentlich-rechtliche Religionsgesellschaften meiner Familienangehörigen (Ehegatte, minderjährige Kinder, Eltern minderjähriger Kinder), denen ich selbst nicht angehöre (§ 30 Abs. 2 NMG).
 
