@@ -2,7 +2,7 @@
 
 Hiermit widerspreche ich,
 
-+ Der Weitergabe meiner Daten an öffentlich-rechtliche Religionsgesellschaften, der mein Ehepartner / Ehepartnerin / mein minderjähriges Kind, meine Eltern (nur im Falle der Minderjährigkeit der/des Antragstellenden) angehören – während ich diesen nicht angehöre (§ 30 Abs. 2 Satz 3 SächsMG).
++ Der Weitergabe meiner Daten an öffentlich-rechtliche Religionsgesellschaften, der mein Ehepartner / Ehepartnerin / mein minderjähriges Kind, meine Eltern angehören – während ich diesen nicht angehöre (§ 30 Abs. 2 Satz 3 SächsMG).
 
 + Der Erteilung einer Auskunft über die zu meiner Person nach § 32 Abs. 1 Satz 1 SächsMG gespeicherten Daten an Parteien, Wählergruppen und andere Träger von Wahlvorschlägen im Zusammenhang mit Wahlen zu parlamentarischen und kommunalen Vertretungskörperschaften (z. B. bei Landtagswahlen) bzw. der Nutzung der Daten für die Versendung von Wahlwerbung (§ 33 Abs. 1 i.V.m. § 33 Abs. 4 SächsMG).
 
