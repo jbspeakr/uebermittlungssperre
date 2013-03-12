@@ -1,6 +1,6 @@
 ### Widerspruch gegen die Weitergabe von Daten durch die Meldebehörde
 
-Hiermit widerspreche ich,
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Weitergabe meiner Daten an öffentlich-rechtliche Religionsgesellschaften, der mein Ehepartner / Ehepartnerin / mein minderjähriges Kind, meine Eltern angehören – während ich diesen nicht angehöre (§ 30 Abs. 2 Satz 3 SächsMG).
 
