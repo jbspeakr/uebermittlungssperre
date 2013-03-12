@@ -1,6 +1,6 @@
 ### Weitergabe meiner Meldedaten über das Internet, zur Wahlwerbung, an Religionsgesellschaften, zum Zwecke der Direktwerbung u.a.
 
-Hiermit widerspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Weitergabe meiner Daten durch automatisierten Abruf über das Internet (§ 34 Abs. 1a Hamburgisches Meldegesetz).
 
