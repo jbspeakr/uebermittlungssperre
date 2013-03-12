@@ -1,6 +1,7 @@
 ### Widerspruch zur Datenübermittlung
 
-Hiermit widerspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
+
 + Der Übermittlung meiner Daten an die Religionsgesellschaft meines Ehegatten (§ 30 Abs.2, BbgMeldG).
 
 + Der Weitergabe meiner Daten an Parteien, politische Vereinigungen, Wählergruppen, Listenvereinigungen und andere Träger von Wahlvorschlägen im Zusammenhang mit Wahlen zum Europäischen Parlament, zum Deutschen Bundestag, zum Landtag und im Zusammenhang mit Kommunalwahlen (§ 33 Abs. 1 BbgMeldG). Der Weitergabe meiner Daten an Parteien, politische Vereinigungen und Listenvereinigungen im Zusammenhang mit Volksbegehren und Volksentscheiden (§ 33 Abs. 2 BbgMeldG). Der Weitergabe meiner Daten an Parteien, politische Vereinigungen, Wählergruppen, Listenvereinigungen und Vertreter im Zusammenhang mit Bürgerentscheiden (§ 33 Abs. 3 BbgMeldG).
@@ -11,7 +12,7 @@ Hiermit widerspreche ich
 
 + Der einfachen Melderegisterauskunft mittels automatisiertem Abruf über das Internet (§ 32a Abs. 2 BbgMeldG).
 
-+ Gegen die Datenübermittlung an das Bundesamt für Wehrverwaltung gemäß § 18 Absatz 7 Melderechtsrahmengesetz.
++ Der Datenübermittlung an das Bundesamt für Wehrverwaltung gemäß § 18 Absatz 7 Melderechtsrahmengesetz.
 
 Ich bitte um Bestätigung, dass der Widerspruch im Melderegister gespeichert worden ist.
 
