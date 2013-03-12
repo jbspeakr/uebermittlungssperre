@@ -1,6 +1,6 @@
 ### Erklärung
 
-Hiermit widerspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Weitergabe meiner Daten an die öffentlich-rechtliche Religionsgesellschaft als Familienangehörige eines Mitgliedes (§ 30 Abs. 2 MG LSA),
 
