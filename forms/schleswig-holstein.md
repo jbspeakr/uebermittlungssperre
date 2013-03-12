@@ -1,6 +1,6 @@
 ### Widerspruch gegen Datenübermittlung aus dem Melderegister
 
-Hiermit widerspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Datenübermittlungen an öffentlich-rechtliche Religionsgesellschaften (§ 26 Abs. 2 LMG).
 
