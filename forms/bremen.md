@@ -8,7 +8,7 @@ Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich h
 
 + Der Veröffentlichung meiner Daten anlässlich Alters- oder Ehejubiläums (§ 33 Abs. 2 Meldegesetz)
 
-+ Der Weitergabe meiner Daten an Adressbuchverlage wird widersprochen (§ 33 Abs. 3 Meldegesetz)
++ Der Weitergabe meiner Daten an Adressbuchverlage (§ 33 Abs. 3 Meldegesetz)
 
 + Der Weitergabe meiner Daten an Private (einfache Melderegisterauskunft) im Falle des automatisierten Abrufs über das Internet (§ 32 Abs. 1 b Meldegesetz).
 
