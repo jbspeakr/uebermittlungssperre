@@ -1,6 +1,6 @@
 ### Antrag auf Einrichtung von Übermittlungssperren
 
-Hiermit wiederspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Weitergabe meiner Daten an die Religionsgesellschaft meines Ehegatten, da ich nicht der Religionsgesellschaft meines Ehegatten angehöre (§ 32 Abs. 2 Meldgesetz).
 
