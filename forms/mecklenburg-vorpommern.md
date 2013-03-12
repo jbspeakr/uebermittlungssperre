@@ -1,6 +1,6 @@
 ### Widerspruch gegen die Weitergabe meiner Daten nach dem Meldegesetz für das Land Mecklenburg-Vorpommern (Landesmeldegesetz – LMG)
 
-Hiermit widerspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Weitergabe meiner Daten an Parteien, Wählergruppen und andere Träger von Wahlvorschlägen im Zusammenhang mit Parlaments- und Kommunalwahlen sowie verfassungsrechtlich oder gesetzlich vorgesehenen Abstimmungen (§ 35 Abs. 1 LMG).
 
