@@ -1,6 +1,6 @@
 ### Erklärung gem. § 34 Abs. 5, § 30 Abs. 2 Nieders. Meldegesetz (NMG), § 18 Abs. 7 und § 21 Abs. 1a Satz 2 Melderechtsrahmengesetz (MRRG)
 
-Hiermit widerspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Weitergabe meiner Daten an Träger von Wahlvorschlägen im Zusammenhang mit Wahlen zu parlamentarischen und kommunalen Vertretungskörperschaften (§ 34 Abs. 1 NMG) / Parteien, Wählergruppen und an andere Träger von Wahlvorschlägen sowie Antragsteller im Zusammenhang mit Volksbegehren und Volksentscheiden (§34 Abs. 2 NMG),
 
