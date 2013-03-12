@@ -1,6 +1,6 @@
 ### Antrag auf Übermittlungssperre
 
-Hiermit widerspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Weitergabe meiner Daten über das Internet,
 + Der Weitergabe meiner Daten an Religionsgesellschaften,
