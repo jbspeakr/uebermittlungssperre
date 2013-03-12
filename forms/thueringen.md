@@ -1,6 +1,6 @@
 ### Widerspruch gegen die Übermittlung meiner Daten durch die Meldebehörde
 
-Hiermit widerspreche ich
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Übermittlung meiner Daten an Parteien, Wählergruppen und andere Träger von Wahlvorschlägen im Zusammenhang mit allgemeinen Wahlen und Abstimmungen (§ 32 Abs. 1 ThürMeldeG),
 
