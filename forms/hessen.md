@@ -1,6 +1,6 @@
 ### Widerspruch gegen die Weitergabe von Daten durch die Meldebehörde
 
-Hiermit widerspreche ich,
+Mit Bezug auf mein Recht auf informationelle Selbstbestimmung widerspreche ich hiermit:
 
 + Der Auskunftserteilung über meine Meldedaten an Parteien, Wählergruppen und andere Träger von Wahlvorschlägen im Zusammenhang mit Wahlen zu parlamentarischen und kommunalen Vertretungskörperschaften (z.B. bei Landtagswahlen) (§ 35 Abs. 1 HMG). Der Auskunftserteilung über meine Meldedaten an Träger für Abstimmungen, Bürger- und Volksbegehren (§ 35 Abs.2 HMG).
 
